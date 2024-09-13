@@ -1,5 +1,4 @@
 
-### IOS Developer
 
 Computer Science M.Sc. 🎓
 
